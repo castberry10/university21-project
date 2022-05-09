@@ -7,4 +7,4 @@ https://dinae.tistory.com/59
 
 위 글의 비밀번호는 제 생일입니다. 
 
-곧 이 저장소에도 정리하겠습니다.
+![image](https://user-images.githubusercontent.com/25453543/167417704-2e44c0be-ee0a-4551-986f-67773cd130a3.png)
